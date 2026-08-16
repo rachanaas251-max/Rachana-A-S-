@@ -1,1 +1,0 @@
-arecanut disease risk monitoring system 
